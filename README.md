@@ -1,4 +1,14 @@
 
+
+https://github.com/ScRiPt1337/Scripted-Ransomware-builder.git
+
+
+
+
+
+
+
+
 we hack for india code for india die for india
 
 # requirement
